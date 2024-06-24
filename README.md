@@ -1,4 +1,4 @@
-emoji gallery!!!
+𝒷𝒾𝑔 𝓈𝑒𝓍𝓎 𝑒𝓂𝑜𝒿𝒾 𝑔𝒶𝓁𝓁𝑒𝓇𝓎
 
 ![bolos](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcS4qF0yVNyxMQXqfnjl8wBJEtoXNCZOJpqtFw&s)
 ![poopoo](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRqnCh18Ethjl2gYl3yySGXwNMZEqPfpASk9A&s)
